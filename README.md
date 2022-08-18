@@ -9,7 +9,7 @@ Hello,
 Starting in High School I was able to repairing computers and update them with new components. My first computer only had 368 MB hard drive storage on a acer system.
 I have recently been helping a nonprofit organization with updating all of their media displays, Live streaming and soundboard controlls. 
      I have found time to built a new Desktop for me. Yes, It has Windows 10 and I also install a Linux operating system. They're on two different
-hard drives.I am Liking the linux system so far with a lot to learn. I been told that I am easy going and friend to everbody I meet.                                  Thanks for taking some of your time to learn a little bit about me.
+hard drives. I am Liking the linux system so far with a lot to learn. I been told that I am easy going and friend to everbody I meet.                                  Thanks for taking some of your time to learn a little bit about me.
    
    Brytt Lucas
 
